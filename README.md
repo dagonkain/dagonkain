@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @dagonkain (Dagon Kain).
+- 👀 I’m interested in bleeding edge technology.
+- 🌱 I’m currently learning everything I can, especially focused on AI and quantum interactions.
+- 💞️ I’m looking to collaborate on new and innovative things like AI.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: The universe hates me.
